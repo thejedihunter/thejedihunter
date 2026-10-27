@@ -1,5 +1,7 @@
 # IMPORTANT
-hi i have no idea how to make repositories but this is very important. to whoever thought itd be funny to hop on a vpn and dox my town name on my atabook by asking how the weather is here, youre just making the situation worse. it doesnt make you look cool or edgy, you just look like a coward. idk who did it since, as i said before, they are using a vpn, but just know doxxing someone over ponytown drama THAT IM NOT EVEN INVOLVED IN is geniunely insane. that is a legitimate crime and i hope you get the mental help you so clearly need. 
+hi i have no idea how to make repositories but this is very important. 
+
+to whoever thought itd be funny to hop on a vpn and dox my town name on my atabook by asking how the weather is here, youre just making the situation worse. it doesnt make you look cool or edgy, you just look like a coward. idk who did it since, as i said before, they are using a vpn, but just know doxxing someone over ponytown drama THAT IM NOT EVEN INVOLVED IN is geniunely insane. that is a legitimate crime and i hope you get the mental help you so clearly need. 
 
 if anyone recognises the vpn ip please be careful and block it from your own atabooks. i'm not sure how they got information about my town as i havent clicked any links or visited shady websites, so i have to assume they used my ip from signing someone elses ata to get this info, since ata uses my actual ip on guestbooks instead of an ata ip. 
 
