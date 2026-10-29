@@ -1,4 +1,4 @@
-# IMPORTANT
+# ATA DOXXER AWARENESS
 hi i have no idea how to make repositories but this is very important. 
 
 to whoever thought itd be funny to hop on a vpn and dox my town name on my atabook by asking how the weather is here, youre just making the situation worse. it doesnt make you look cool or edgy, you just look like a coward. idk who did it since, as i said before, they are using a vpn, but just know doxxing someone over ponytown drama THAT IM NOT EVEN INVOLVED IN is geniunely insane. that is a legitimate crime and i hope you get the mental help you so clearly need. 
